@@ -118,6 +118,7 @@ Any member who believes they have been unfairly penalized has the right to appea
 
 If you are subject to or witness unacceptable behavior, or have any other concerns, please notify the community leaders immediately at: 
 Ali Arabi (Founder) **\[aliarabibbfftt@gmail.com\]**.
+
 Salma Kelany (Vice President) **\[salmakelany480@gmail.com\]**.
 
 We will handle all reports with discretion and confidentiality.
